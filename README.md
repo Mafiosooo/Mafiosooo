@@ -10,6 +10,8 @@ yyyaapppinngg tiemm ^3^
 
 Hi my name is mafioso but just call me maf for short. I also go by junie ect.  !!! :D
 
+taken by mi lovely boyfren ^__^ hi mag
+
 trans, mlm. I love men so mcuh 🤤
 
 i use he/it pronouns ONLY. dont let me catch you using SHE or THEY on me. ur ass is done for.
