@@ -10,7 +10,9 @@ yyyaapppinngg tiemm ^3^
 
 Hi my name is mafioso but just call me maf for short. I also go by junie ect.  !!! :D
 
-i use he/it pronouns,, maybe a bit of bunny/bunnys n rot/rots if im feeling dubious.
+trans, mlm. I LIKE FEM NAMES THEY R SO C00L.
+
+i use he/it pronouns ONLY. dont let me catch you using SHE or THEY on me. ur ass is done for.
 
 if u couldnt tell i REALLAYYY like mafioso like hes m favorite character ever hes so me.
 
