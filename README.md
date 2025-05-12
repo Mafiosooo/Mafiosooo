@@ -1,16 +1,17 @@
-## Hi there 👋
+# HI IM MAFIOSO I LIKE MAFIOSO HI
 
-<!--
-**Mafiosooo/Mafiosooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ??
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+yyyaapppinngg tiemm ^3^
+
+![MafiosoRedesignProtoIntro](https://github.com/user-attachments/assets/11b83c08-47df-45af-aecf-144f341f26bf)
+
+
+Hi my name is mafioso but just call me maf for short. I also go by junie ect.  !!! :D
+
+i use he/it pronouns,, maybe a bit of bunny/bunnys n rot/rots if im feeling dubious.
+
+if u couldnt tell i REALLAYYY like mafioso like hes m favorite character ever hes so me.
+
+artist + editor + VA :3
