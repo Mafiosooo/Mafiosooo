@@ -8,7 +8,7 @@ yyyaapppinngg tiemm ^3^
 ![MafiosoRedesignProtoIntro](https://github.com/user-attachments/assets/11b83c08-47df-45af-aecf-144f341f26bf)
 
 
-Hi my name is mafioso but just call me maf for short. I also go by junie ect.  !!! :D
+Hi my name is mafioso but just call me maf for short. I also go by blixer ect.  !!! :D
 
 taken by mi lovely boyfren ^__^ hi mag
 
